@@ -1,6 +1,6 @@
 ### hi ꜀(^. . ^꜀ )੭ .ᐟ.ᐟ 
 i'm kaitlyn — cs @ princeton :heart:\
-focus: cybersecurity & privacy engineering • health data protection • human-centric security ♡₊˚⊹ 
+focus: cybersecurity & privacy • health data protection • human-centric security ♡₊˚⊹ 
 
 #### tech stack ₊˚⊹♡
 
